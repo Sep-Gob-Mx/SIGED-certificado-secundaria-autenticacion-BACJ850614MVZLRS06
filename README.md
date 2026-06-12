@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BACJ850614MVZLRS06
+BACJ850614MVZLRS06
